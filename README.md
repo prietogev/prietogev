@@ -4,6 +4,6 @@
 
 Puedes seguirme en mis redes sociales, aquí los links ditectos 👇🏻.
 
-[Instagram](https://www.instagram.com/prietodev/)
+[Instagram](https://www.instagram.com/prieto.dev/)
 
-Para ver más sobre mí entra en mi [Servidor de Discord](https://discord.com/invite/Sz2Uw9fbAR)
+Para ver más sobre mí entra en mi [Servidor de Discord](https://discord.com/)
